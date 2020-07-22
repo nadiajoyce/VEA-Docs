@@ -1,6 +1,6 @@
 # Statement
 
-Historically, the wedding industry has been massively lacking in areas of representation and equity, especially across race, gender, and sexual orientation. The fact that interracial marriage wasn’t fully legal in the U.S. until 1967, and same sex marriage wasn’t legal until 2015, has been reflected in wedding industry practices and imagery since its beginning. And to this day, it’s painfully clear just how racist, sexist, homophobic, and generally homogenous the industry still is.
+Historically, the wedding industry has been massively lacking in areas of representation and equity, especially across race, gender, and sexual orientation. The fact that interracial marriage wasn’t fully legal in the U.S. until 1967, and same sex marriage wasn’t legal until 2015, has been reflected in wedding industry practices and imagery since its beginning. And to this day, it’s painfully clear just how racist, sexist, homophobic, and generally prejudiced the industry still is.
 
 It’s up to wedding vendors and industry leaders to correct this. We have a responsibility to create spaces and content where all people feel seen, safe, and valued. 
 
