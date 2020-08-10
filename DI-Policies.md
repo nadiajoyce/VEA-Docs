@@ -40,6 +40,13 @@ These are the specific actions I commit to taking as integral parts of how I do 
          + In what ways do you show support and acceptance for love and partners of all kinds, including folks belonging to the LGBTQIA+ community and interracial couples?
          + Have you ever refused service to a couple because their partnership conflicted with your personal values?
          + If someone were to make a racist remark while you were working with them, what would you do?
+   + Client contracts to all include an Event Behavior and Liability clause, which states:
+      >In the event that Photographer identifies any inappropriate, threatening, hostile, racist, homophobic, transphobic, xenophobic, misogynistic, or otherwise hateful or offensive behavior directed at them or their employees, contractors, agents, or other, Photographer reserves the right to end photographing of the event, retain all fees paid by the Client, and hold no further responsibilities to the Client.
+
+
+      >Photographer agrees to notify the Client of any of the above listed behaviors, and give them an opportunity to correct such behaviors, or remove the offending individuals from the venue prior to ending event photographing.
+
+
 
 + Continuing education 
 
