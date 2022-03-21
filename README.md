@@ -1,3 +1,3 @@
-# NJP-Docs
+# VEA-Docs
 
-Home for documentation on nadiajoycephotography.com
+Home for documentation on ventureeverafter.com
