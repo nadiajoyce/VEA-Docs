@@ -8,7 +8,7 @@
 - 50% advertising spend with organizations that prove a commitment to D+I as a public part of their business practices
 
 
-*Goals Missed/Needing Improvement* ✅
+*Goals Missed/Needing Improvement* 🟡
 - Quarterly website audits
 - Monthly social feed audits
 - Interviewing/investigating all subcontractors to ensure inclusive practices in place
