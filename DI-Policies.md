@@ -4,7 +4,7 @@ Historically, the wedding industry has been massively lacking in areas of repres
 
 It’s up to wedding vendors and industry leaders to correct this. We have a responsibility to create spaces and content where all people feel seen, safe, and valued. 
 
-It’s important to me as a wedding business owner to not only implement policies that address these issues, but also hold myself accountable to those policies. So, I’m sharing this document publicly as one part of my own efforts to do better and be better. This not an “arrival”, but rather part of an ongoing process that will evolve and change over the lifetime of my business as I learn and iterate to create more inclusive, welcoming, and safe spaces for all folx.
+It’s important to me as a wedding business owner to not only implement policies that address these issues, but also hold myself accountable to those policies. So, I’m sharing this document publicly as one part of my own efforts to do better and be better. This is not an “arrival”, but rather part of an ongoing process that will evolve and change over the lifetime of my business as I learn and iterate to create more inclusive, welcoming, and safe spaces for all folks.
 
 # Specific policies
 
