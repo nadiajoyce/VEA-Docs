@@ -1,8 +1,8 @@
 # Statement
 
-Historically, the wedding industry has been massively lacking in areas of representation and equity, especially across race, gender, and sexual orientation. The fact that interracial marriage wasn’t fully legal in the U.S. until 1967, and same sex marriage wasn’t legal until 2015, has been reflected in wedding industry practices and imagery since its beginning. And to this day, it’s painfully clear just how racist, sexist, homophobic, and generally prejudiced the industry still is.
+Historically, the wedding industry has been massively lacking in areas of representation and equity, especially across race, gender, and sexual orientation. The fact that interracial marriage wasn’t fully legal in the U.S. until 1967, and same sex marriage wasn’t legal until 2015, has been reflected in wedding industry practices and imagery since its beginning. And to this day, it’s painfully clear just how racist, sexist, homophobic, and generally prejudiced the industry still is. In 2025, it's clear that there will likely be even more challenges to Diversity and Inclusion, not only in the wedding industry, but throughout the U.S.'s society.
 
-It’s up to wedding vendors and industry leaders to correct this. We have a responsibility to create spaces and content where all people feel seen, welcome, celebrated, and valued. 
+When it comes to the wedding industry, it’s up to wedding vendors and industry leaders to correct this. We have a responsibility to create spaces and content where all people feel seen, welcome, celebrated, and valued. Now more than ever.
 
 It’s important to me as a wedding business owner to not only implement policies that address these issues, but also hold myself accountable to those policies. So, I’m sharing this document publicly as one part of my own efforts to do better and be better. This is not an “arrival”, but rather part of an ongoing process that will evolve and change over the lifetime of my business as I learn and iterate to create more inclusive, welcoming, and celebratory spaces for all people.
 
@@ -15,8 +15,8 @@ These are the specific actions I commit to taking as integral parts of how I do 
 
    + Listen to and amplify the stories and experiences of marginalized groups in the industry, and out of it.
       + Examples include, but are not limited to:
-         + Promotion of diversity-and-inclusion-minded vendors in my social feeds and/or blog
-         + Sharing love stories from underrepresented folks in my social feeds and/or blog
+         + Promotion of diversity-and-inclusion-minded vendors in my social feeds, blog, and newsletters
+         + Sharing love stories from underrepresented folks in my social feeds, blog, and newsletters
 
    + Use my privilege, and speak up when witness to problematic statements, situations, and practices.
 
@@ -25,7 +25,7 @@ These are the specific actions I commit to taking as integral parts of how I do 
 
 + Website updates
 
-   + When conducting website updates (typically at least once a year):
+   + When conducting website updates (at least once a year):
       + Ensure representation of underrepresented groups in imagery across website, including blog
       + Ensure the use of inclusive language (e.g. gender neutral terms) across website, including blog
       + Ensure Diversity + Inclusion (D+I) Policies are up-to-date and accurate based on ongoing work and evolving best practices
@@ -33,7 +33,7 @@ These are the specific actions I commit to taking as integral parts of how I do 
 
 + Social media
   
-   + Regularly ensure representation of underrepresented groups in feeds, across all platforms (Instagram, Facebook, TikTok, Pinterest)
+   + Quarterly audit feeds to ensure representation of underrepresented groups across all platforms (Instagram, Facebook, TikTok, Pinterest)
    + Ensure the use of inclusive language extends to all social posts
 
 
@@ -64,7 +64,7 @@ These are the specific actions I commit to taking as integral parts of how I do 
 
    + Regularly and consistently seek out, work with, and refer underrepresented vendors. This includes:
       + Maintaining a vendor referral list that is made up of at least 50% underrepresented folks.
-      + At least once a year, attend networking events focused on and/or hosted by underrepresented groups in order to connect with even more people working in the wedding industry.
+      + At least once a year, attend networking events focused on and/or hosted by underrepresented groups in order to connect with even more people working in the wedding industry. At least one of these should be outside of what's offered by [Altared](https://altaredpdx.com/).
 
 
 + Advertising spend + outreach
@@ -75,7 +75,7 @@ These are the specific actions I commit to taking as integral parts of how I do 
  
 + Giving Back Program
 
-   + For every wedding or elopement booking that Venture Ever After receives, I will donate a set amount of money (as of 2024: $200) to a select organization doing work in human rights, environmental issues, or both.
+   + For every wedding or elopement booking that Venture Ever After receives, I will donate a set amount of money (as of 2025: $200) to a select organization doing work in human rights, environmental issues, or both.
    + I will annually assess the organizations on my Giving Back Program list to ensure they're still doing work that aligns with Venture Ever After's values, and I will rotate in new organizations whenever possible, to give others a chance at receiving benefits of the program.
 
 
