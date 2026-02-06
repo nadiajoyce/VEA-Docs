@@ -33,8 +33,8 @@ These are the specific actions I commit to taking as integral parts of how I do 
 
 + Social media
   
-   + Quarterly audit feeds to ensure representation of underrepresented groups across all platforms (Instagram, Facebook, TikTok, Pinterest)
-   + Ensure the use of inclusive language extends to all social posts
+   + Regularly audit feeds to ensure representation of underrepresented groups across all platforms (Instagram, Facebook, TikTok, Pinterest)
+   + Ensure the use of inclusive language extends to all social posts (e.g. non-gendered language wherever possible, proper use of pronouns, etc)
 
 
 + Subcontractors, partners, + clients
@@ -75,7 +75,7 @@ These are the specific actions I commit to taking as integral parts of how I do 
  
 + Giving Back Program
 
-   + For every wedding or elopement booking that Venture Ever After receives, I will donate a set amount of money (as of 2025: $200) to a select organization doing work in human rights, environmental issues, or both.
+   + For every wedding or elopement booking that Venture Ever After receives, I will donate a set amount of money (as of 2026: $200) to a select organization doing work in human rights, environmental issues, or both.
    + I will annually assess the organizations on my Giving Back Program list to ensure they're still doing work that aligns with Venture Ever After's values, and I will rotate in new organizations whenever possible, to give others a chance at receiving benefits of the program.
 
 
